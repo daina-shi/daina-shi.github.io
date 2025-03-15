@@ -20,3 +20,5 @@ late night operators
 
 [Sorry, Wrong Number](https://srajagopalan.substack.com/p/sorry-wrong-number)
 
+[`IN THE OLD DAYS, SURE, OPERATORS COULD LISTEN IN ON CALLS`](https://www.chicagotribune.com/1985/11/03/in-the-old-days-sure-operators-could-listen-in-on-calls/)
+

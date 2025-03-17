@@ -70,4 +70,35 @@ I spent the next 2 hours in a daze. *Who was that person? How did he know who I 
 
 ### Scene 2 - Meeting at the café
 
-I was walking down the road, in my usual route, after my shift ended at 11 o'clock. A few feet infront of me was the Radio-shack. These few steps ahead of me were a deadline for me to make my decision. It was a choice between assured safety and uncertainity, home and the café, the routine and an adventure. I turned left. 
+I was walking down the road, in my usual route, after my shift ended at 11 o'clock. A few feet infront of me was the Radio-shack. These few steps ahead of me were a deadline for me to make my decision. It was a choice between assured safety and uncertainity, home and the café, the routine and an adventure.
+
+I turned left. The road was new to me. City nights are far from desolate, but the night is still the night. I clutched the utility knife inside my hand bag. I was no Keiko Fukuda but my father sent me to martial arts classes in my teens. If the caller was some creep looking to prey upon innocent young girls, he was gonna get it. 
+
+It had been nearly 10 minutes when I spotted the mall. Sure enough, sitting beside it was a shy little café. It read Leopold Café in big, bold lettering. The street was dimly lit, the café looked normal. I could still turn back if I wanted to. But I had already made my decision.
+
+There were around a dozen customers in the cafe. A couple of waitresses moved around, taking orders and looking busy. True to his word, the man in the white shirt was sitting at a table, alone, looking at the menu. I walked to the table and stood before him, as if demanding an explination. The man looked up, shifted in his seat and made an awkward gesture as if to say "please sit!". I was a little surprised. I expected the man that found out my name and called me at my work to be a little more ...menacing, sinister, or atleast a little creepy. 
+
+He wore a white shirt, tie and cargo pants. He was a typical young office worker. Or atleast he looked like one. 
+
+I adjusted the chair and sat opposite him. He looked at me, all serious, like this was an interview. There was a silence too long and quiet for my taste. I was about to break the silence, when a waitress beat me to it.
+
+"Are y'all ready to order?"
+
+*God, great timing girl, way to prolong this even more.* I maybe irritated at the moment, but I was raised to be a proper, polite lady. If the man wanted to order something, I wasn't going to stop him.
+
+"Just a coffee for me, thanks!"
+
+She then turned to me expectantly.
+
+"Same."
+
+*I don't even like coffee, what the fuck am I doing?*
+
+"So, who are you?" I blurted as soon as she left.
+
+"What? Who am I? You should atleast know that right? after calling me out here to the middle of nowhere? You even mentioned me by name."
+
+*What is he talking about?* Was he playing with me? He was the one who called me out here.
+
+"What are you talking about?"
+
